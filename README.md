@@ -1,2 +1,2 @@
 # chintu
-mandir vhi banega
+ab nhi bnega bjp haar gyi
